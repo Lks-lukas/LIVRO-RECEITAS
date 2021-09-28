@@ -7,11 +7,6 @@ Olá ! bem vindo ao meu livro de Receita
 # Receita pavê :ballot_box:
 
 
-
-> > > > > > > > >
-> > > > > > > >
-> > > > > > > > heda >>>>>>>dhjahjdkla454541212313213
-
 ### Ingredientes
 
 #### Cobertura
