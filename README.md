@@ -1,6 +1,6 @@
-# 1 Livro de Receitas :registered:
+# 1 Livro de Receitas:registered:
 
-Olá ! bem vindo ao meu livro de Receita :champagne:
+Olá ! bem vindo ao meu livro de Receita 
 
 
 
